@@ -1,1 +1,1 @@
-Soy Jose Eduardo Quintana Castorena temoo en la clase solo te revisamos el # y /*..*/ y nos contarias esos dos pero logre terminar todo y te mando tambien junto con el #..
+Soy Jose Eduardo Quintana Castorena temoo en la clase solo te revisamos el # y /*..*/ y nos contarias esos dos como un 70% pero logre terminar todo y te mando tambien junto con el #.. ya toda la practica completa
